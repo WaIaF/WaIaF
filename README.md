@@ -8,6 +8,7 @@
 ### Connect with me:
 
 - 🍆 Discord: Lazaara#6969
+- 📧 Contact email: Lazaara@discords.cool
 
 ---
 
