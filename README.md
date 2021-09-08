@@ -3,7 +3,7 @@
 - 📝 I'm WaIaF
 - 📖 I'm a student living in Vietnam
 - 👀 I’m interested in Maths and computer science
-- 🌱 I’m currently learning Java and Python
+- 🌱 I’m currently learning Java, Python and C#
 
 ### Connect with me:
 
