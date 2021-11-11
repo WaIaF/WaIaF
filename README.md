@@ -7,7 +7,7 @@
 
 ### Connect with me:
 
-- 🍆 Discord: Lazaara#6969
+- 🍆 Discord: Lazaara#5939
 - 📧 Contact email: hongthoai69420@gmail.com
 
 ---
